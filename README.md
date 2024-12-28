@@ -1,1 +1,1 @@
-# Hacked-page
+Your divice has been hacked 
